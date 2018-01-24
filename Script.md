@@ -22,6 +22,8 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
+He heard a strange sound coming from behind the some trees that Spock had never heard before. "Fascinating", thought Spock, "A sound of that frequency is usually only heard on non-humanoid inhabited planets". Then before he could even say "Vulcan", a hand wrapped around Spock's mouth and pulled him into the bushes. Alas! The Zookeeper he had been looking for had finally made an appearance. 
+
 Spock met the Unicorn King who granted him magic powers.
 The end.
 
