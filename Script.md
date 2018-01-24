@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Spock met the Unicorn King who granted him magic powers.
+At this point, Spock was contemplating what he always thought of during these types of situations: "Why is it that my red-shirt crew members always die, even though I'm in the same situations?". And at that moment, he was contacted by the Enterprise and was beamed back up to the ship. Spock, Kirk, and Bones then laughed and smiled around the Captains chair, and Bones said "I'm a doctor, not an engineer".
 The end.
 
 ## Cast
